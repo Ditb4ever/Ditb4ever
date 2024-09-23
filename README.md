@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Ditb4ever
-- 👀 I’m interested in programming, soccer and video games
-- 🌱 I’m currently learning school stuff and programming
+- 👋 Hi, I’m a legendary potato
+- 👀 I’m interested in programming, soccer, video editing and video games
+- 🌱 I’m currently learning school stuff and programming and capcut
 - 💞️ I’m looking to collaborate on absolutely nothing.
 - 📫 How to reach me notavirus32@gmail.com
 
